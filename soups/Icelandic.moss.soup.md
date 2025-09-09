@@ -8,7 +8,7 @@
 - 1 tbsp carottes and other root vegetables
 - 1 tbsp love parsley (Levisticum officinalis)
 - 1/2 teasp caraway (Carum carvi)
-- 1/2 teasp juniper berries
+- 1/2 teasp juniper berries (Juniperus communis)
 - salt
 - pepper
 - 
